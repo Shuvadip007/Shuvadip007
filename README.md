@@ -2,7 +2,7 @@
 
 Senior Executive at Nobroker <br/>
 Data Science(AI & ML) student at Almabetter<br/>
-I analize data and explore it for fun<br/>
+I analyze and explore data for fun<br/>
 i upload all my research project on [LinkedIn](https://www.linkedin.com/in/shuvadip-sahu-4b3313316/)
 
 
